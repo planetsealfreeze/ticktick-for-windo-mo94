@@ -1,4 +1,4 @@
-# 
+# TickTick for Windows new Addon: collaboration & team-assignment is the best TickTick for Windows addon, featuring collaboration and team-assignment. Powerful, efficient, and
 
 
 
